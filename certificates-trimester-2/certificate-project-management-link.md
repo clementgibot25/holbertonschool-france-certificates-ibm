@@ -1,0 +1,1 @@
+https://skills.yourlearning.ibm.com/certificate/share/92449f5340ewogICJsZWFybmVyQ05VTSIgOiAiNDYyNzQyNFJFRyIsCiAgIm9iamVjdFR5cGUiIDogIkFDVElWSVRZIiwKICAib2JqZWN0SWQiIDogIlBMQU4tQjJERTVDOTI3RUVDIgp97d93b0971b-10
